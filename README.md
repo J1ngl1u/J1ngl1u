@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @J1ngl1u
+- 👀 I’m interested in developing
+- 🌱 I’m currently learning coding :3
+- 💞️ I’m looking to collaborate on: nothing at the moment
+- 📫 How to reach me: N/A
+- 😄 Pronouns: she/her
